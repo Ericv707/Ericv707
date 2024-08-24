@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ericv707
-- 👀 I’m interested in ...I like haqnging out with friends 
+- 👀 I’m interested in ...I like hanging out with friends 
 - 🌱 I’m currently learning ...Computer Science 
 - 💞️ I’m looking to collaborate on ... With APASS
 - 📫 How to reach me ...email address: sharkbloxgamerhd@gmail.com
