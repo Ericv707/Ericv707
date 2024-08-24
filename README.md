@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... With APASS
 - 📫 How to reach me ...email address: sharkbloxgamerhd@gmail.com
 - 😄 Pronouns: ...he/him
-- ⚡ Fun fact: ...N/A
+- ⚡ Fun fact: ...I like hanging out with friends 
 
 <!---
 Ericv707/Ericv707 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
